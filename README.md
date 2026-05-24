@@ -1,12 +1,12 @@
 <img width="1024" height="1024" alt="Altium Designer" src="https://github.com/user-attachments/assets/ea5e5d77-3590-4310-b140-707623077704" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/altium-designer-26-3-0/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/altium-designer-26-3-0/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/altium-designer-26-3-0/torrent-download
 
 Purchase link :
 
